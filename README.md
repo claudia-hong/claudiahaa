@@ -1,4 +1,4 @@
-### Hi there 👋 I'm 
+### Hi there 👋 I'm Claudia Hong
 
 ### 📚 I'm studying web development.
 
